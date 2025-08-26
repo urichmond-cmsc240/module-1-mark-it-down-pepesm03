@@ -1,9 +1,9 @@
 # **PEPE SANCHEZ MENCHEN**
-![alt text](IMG_1843.JPG)
+![alt text](IMG_1843.JPG) 
 
 **Eid: ps3ke | Username: pepesm03**
 
-*Pronouns: He/his / Class of 2027 - Mathematics and Computer Science*
+*Pronouns: (He/his) / Class of 2027 - Mathematics and Computer Science*
 
 ---
 
