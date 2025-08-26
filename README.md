@@ -1,3 +1,17 @@
-[![Review Assignment Due Date](https://classroom.github.com/assets/deadline-readme-button-22041afd0340ce965d47ae6ef1cefeee28c7c493a6346c4f15d667ab976d596c.svg)](https://classroom.github.com/a/BpXStGJy)
 # **PEPE SANCHEZ MENCHEN**
-![alt text](cat.gif)
+![alt text](IMG_1843.JPG)
+
+**Eid: ps3ke | Username: pepesm03**
+
+*Pronouns: He/his / Class of 2027 - Mathematics and Computer Science*
+
+---
+
+Hobbies: 
+
+- Movies
+- Rugby
+- Chess
+- Books
+
+Favorite Movie: 
