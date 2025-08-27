@@ -1,5 +1,5 @@
 # **PEPE SANCHEZ MENCHEN**
-![alt text](IMG_1843.JPG) 
+<img src= "IMG_1843.JPG" width="300" height= "500"> 
 
 **Eid: ps3ke | Username: pepesm03**
 
